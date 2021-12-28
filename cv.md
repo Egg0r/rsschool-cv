@@ -2,7 +2,8 @@
 > ## Always open to new interesting tasks and projects. Constantly develop my skills and study related areas in order to find the best solution for each of the tasks. 
 ### Contact information:
 #### - Email: zuzinegor060488@gmail.com
-#### - Linkedin: https://clck.ru/YYH3c 
+#### - Linkedin: https://clck.ru/YYH3c
+#### - Behance: https://www.behance.net/egorzuzin
 ### Contact information:
 ### Skills and Proficiency:
 #### - HTML Basics
