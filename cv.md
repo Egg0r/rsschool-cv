@@ -3,7 +3,6 @@
 ### Contact information:
 #### - Email: zuzinegor060488@gmail.com
 #### - Linkedin: https://clck.ru/YYH3c
-#### - Behance: https://www.behance.net/egorzuzin
 ### Contact information:
 ### Skills and Proficiency:
 #### - HTML Basics
